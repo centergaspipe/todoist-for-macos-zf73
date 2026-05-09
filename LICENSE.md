@@ -1,4 +1,4 @@
-
+Todoist for macOS automatic Extension - cloud backup and offline access offers the most advanced Todoist for macOS extension, with cloud backup and offline access. Ideal for
 
 
 
